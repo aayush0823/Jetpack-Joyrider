@@ -37,4 +37,4 @@
 | Quit            |       Esc      |
 
 		SO NOW IT'S TIME TO PLAY!!
-								GOOD LUCKf
+								GOOD LUCK!!
